@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @divagar2903
+- 👀 I’m interested in datascience and AI
+- 🌱 I’m currently learning datascience in NaanMudhalvan platform
+- 💞️ I’m looking to collaborate on IBM
+- 📫 How to reach me +91 8608634253
+- thank you!!
